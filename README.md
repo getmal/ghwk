@@ -1,7 +1,7 @@
 # 5g影讯5g天线在线入口网址www.5g2.6ghz
 正因为家乡有我们的亲人生我养我的父上
 
-👉/观/看/入/口👉http://www.baidu.com/link?url=aFQjCpKLyjmMkJDTPPmIM46mcs0b-moe8w2Xe6-iLGqpxJgfWTUHTnAr0yehHs6i&wd
+<a href="https://github.com/getmal/fdwwt/issues/2">👉👉👉♥♥点此进入♥观看入口👈👉👉</a>
 
 5g影讯5g天线在线入口网址www.5g2.6ghz	21、每一个人，有自己想去的未来，那就上路，过程或许迷茫，结局依然精彩。《后会无期》
 晨起，我要借这逃出前的短促，吸吮如蜜般的甜汁，以此扑灭我此去心中的迷惘。
